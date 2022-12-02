@@ -11,13 +11,13 @@ Was ist heute los in Stein AR?
 
 #### 2022
 * 10.12.2022
-** Unterhaltung mit Theater
+* * Unterhaltung mit Theater
 * 11.12.2022
-** Unterhaltung mit Theater
+* * Unterhaltung mit Theater
 
 #### 2023
 * 25.-27.02.2023
-** Maskenball
+* * Maskenball
 
 ### Welche Betriebe haben offen?
 
